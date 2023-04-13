@@ -1,4 +1,4 @@
-# They call me Ray some Biko, - aka [RayBiko]👋 
+# They call me Ray some Biko - aka [RayBiko]👋 
 
 
 [[Twitter Follow][Raybiko]](https://twitter.com/raybiko)
