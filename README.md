@@ -10,7 +10,7 @@
 
 ## I'm a Husband, Father, Wannabe Data Analyst, and an Engineer!!
 
-- 🔭 Check out my profile: [][course]!
+- 🔭 Check out my profile!
 - 🌱 I’m currently consuming every knowledge about code and data 🤣
 - 👯 I’m looking to collaborate with other learners and coders
 - 🥅 2023 Goals: Data Analytics Certification
